@@ -1,3 +1,4 @@
+
 Regeln:
 
 §I Respektvoller und freundlicher Umgangston, in jeglicher hinsicht. §I.I Die Beleidigung "Hurensohn" führt zu einem permanenten Bann. §II Den Anweisungen der Admins und Mods ist Folge zu leisten. Dies gilt insbesondere bei nichteinhaltung der Regeln. §III Kein Spam. §IV Mindestalter für den Server 12 Jahre.
